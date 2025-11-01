@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=johnvmarstons)
+![](https://komarev.com/ghpvc/?username=johnvmarstons&color=orange)
 
 <p align="center">
 <img width="500" height="500"
