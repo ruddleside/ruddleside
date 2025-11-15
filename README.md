@@ -1,13 +1,1 @@
-![](https://komarev.com/ghpvc/?username=johnvmarstons&color=orange)
-
-<p align="center">
-<img width="500" height="500"
-src="https://files.catbox.moe/qw6asc.png"
-  </p>
-
-> mlm amab, tkn happily! *12.3.24*
-
-<p align="center">
-<img width="100" height="100"
-src="https://files.catbox.moe/hfplr7.gif"
-  </p>
+rmk AGAIN!! also remaking my links to be rdr2 themed LOl
