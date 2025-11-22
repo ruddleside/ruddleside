@@ -2,15 +2,15 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=johnvmarstons&color=182e42&label=ㅤㅤㅤIt'sㅤJohnㅤMarston,ㅤMicah!ㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=johnvmarstons&color=red&label=RUDDLESIDE　POPULATIONㅤㅤㅤ&style=plastic)
 <br />
 
-<p align="center"> ${\textsf{\color{#4d677d}"This kind of sinful living leads only to a fall."}}$
+<p align="center"> ${\textsf{\color{red}" Call me, let's get out this town . "}}$
   
-<p align="center"> ${\textsf{\color{#2b3647}best viewed on pc .}}$
+<p align="center"> ${\textsf{\color{darkred}best viewed on pc .}}$
 
-[![health](https://files.catbox.moe/s0lup4.webp)](https://johnmarstons.atabook.org)
-[![stamina](https://files.catbox.moe/v7mfmi.webp)](https://guns.lol/johnmarstons)
-[![deadeye](https://files.catbox.moe/2eul4e.webp)](https://johnmarstons.atabook.org)
+[![happily ever after](https://files.catbox.moe/q3ohsr.webp)](https://johnmarstons.atabook.org)
+[![sole survivor](https://files.catbox.moe/x6hlqz.webp)](https://guns.lol/johnmarstons)
+[![one last kiss](https://files.catbox.moe/2mud5d.webp)](https://johnmarstons.atabook.org)
 
-links are a wip. all links currently will direct to my atabook.
+links are a wip. feel free to click anyways
