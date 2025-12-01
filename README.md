@@ -5,8 +5,9 @@
 ![](https://komarev.com/ghpvc/?username=ruddleside&color=red&label=RUDDLESIDE　POPULATION&style=plastic)
 <br />
 
-<p align="center"> ${\textsf{\color{red}" Call me, let's get out this town . "}}$
-  
+<p align="center"> ${\textsf{\color{skyblue}" Call me, let's get out this town . "}}$
+
+![](https://files.catbox.moe/rm7gcr.jpeg)
 
 [![happily ever after](https://files.catbox.moe/5x8zv0.png)](https://ruddleside.atabook.org)
 [![sole survivor](https://files.catbox.moe/3mry5k.png)](https://guns.lol/johnmarstons)
