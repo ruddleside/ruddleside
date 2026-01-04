@@ -6,5 +6,6 @@
 <br />
 
 ![](https://files.catbox.moe/7v8y6a.jpeg)
-links below
+
+<p align="center"> ${\textsf{\color{yellow}" Yeah , crazy together . "}}$
 
